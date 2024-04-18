@@ -1,4 +1,4 @@
-Hello I'm MintTeaNeko, I'm an eletronics engineering student.
+Hello I'm ValeriansBox, I'm an eletronics engineering student.
 
 I love coding in many languages for fun.
 
